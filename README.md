@@ -11,4 +11,7 @@ My favorite color:
 
 > BLUEINGOT
 
+My favorite pet: 
+
+> Snowy the Retriever
 Thank you so much for reading! ☺
